@@ -1,3 +1,15 @@
+### ABOUT ME 😊
+*18 years old!! __(I'm high school student...")
+
+### Favorite
+* sleeping...zzz
+* bts
+* eating yummy things
+
+### school
+* I'm in Hafs
+
+
 - 👋 Hi, I’m kge...
 - 👀 I’m interested in chemi-biology, and medical issue
 - 🌱 I’m currently thinking about the most efffective way of korea's medical system
